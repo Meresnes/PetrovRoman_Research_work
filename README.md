@@ -1,1 +1,1 @@
-# PetrovRoman_Research_work
+# Автор Петров Роман Сергеевич
